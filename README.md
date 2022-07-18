@@ -733,6 +733,8 @@
 35. dash这个词，你幼儿园就学过了（dash through the snow）
 36. 考纲小粉书，是考纲phr练习
 37. 《同步解析与测评》里面是基础题
+38. 习惯就好
+39. 卓别林演的形象是个underdog，干啥啥不行，吃饭也不能第一名
 
 ### 英语老师（初中）
 1. 学好英语到美国
@@ -997,7 +999,7 @@
 160. 提高语文从扩大文言文词汇量开始
 161. 六中的学生，善于“捂冻憋”
 162. 2022年3月7日电视上滚动南川金佛山雪场雪厚80cm左右，可满足多数人需求，营业至3月下旬。仅见过10cm积雪的我还自我感觉良好，令人感叹。我应该抽时间去趟禾木村/北海道/双峰林场/聂拉木 当年我远赴南京却不如重庆的滑雪者，令人感叹2018年1月我去南川居然没去看雪，真是太令人感叹了！！我真是白熬夜了，我太惨了吧
-163. 2017年夏天的作业，一篇柠檬水的阅读日本用来洗手，“A few years ago……I didn't know if I should laugh or cry.Finally, we cried with laughter.”
+163. 2017年夏天的作业，一篇柠檬水的任务性？阅读日本用来洗手，“A few years ago……I didn't know if I should laugh or cry.Finally, we cried with laughter.”(I'm Henry, from America. This is my first time in Japan. One day some new colleagues invited me to eat out. At first, I was quite happy and learned to use chopsticks with them, but later problems started.That day, I had a cold. I felt uncomfortable with my nose, so I turned away from the table and blew my nose. My colleagues looked at me strangely. They explained to me that in Japan, people don't blow their noses in public— especially at table.When I was trying to stick my chopsticks in my bowl of rice, one of my colleagues said, “Don't do that. Just leave them on the table.” Later, I found that leaving your chopsticks in your rice means death in Japanese culture!The next time I needed to blow my nose, I left the table and went to the toilet. When I returned, it was nearly time to leave. I noticed there were some small bowls with water in them on the table. It smelt good and I started drinking it before it got cold. Then I saw some of my colleagues cover their mouths. They were trying not to laugh. “What's the matter?” I asked the colleague next to me. “It's for washing your fingers,” he said. For a moment, I didn't know whether to laugh or cry.)
 164. 小确幸，二氧化硫yyds
 165. 以前说无校服不进教室，现在不进校园
 166. 当初我竟然以为新冬季校服是班服
@@ -1066,6 +1068,15 @@
 229. 嘉鸿给我取的英文名是QeeKin·Dn
 230. 希望W值理论早日破圈，这件事情早日发酵
 231. 私は憂鬱な熊です。
+232. 感同身受tan90度
+233. 课堂上吾虽感冒，但我电学真不好。渴望渝西强雷暴，吾欲local case来到。拉年夏季气温高，对流短强很热闹。坚持服用抑郁药，多病的我才能笑。
+234. （求精高二2020~21学年度）dinner比lunch更难吃
+235. 今天又是不想吃dinner的一天。
+236. 高一老师说，戊基有八种同分异构体
+237. 一声令下，拔甲！
+238. 极大似然概率，最概然速率，速方差公式……
+239. 错过了2020年3月的摸冰雹，我真是白熬夜了
+240. i am sorry, 小bear
 
 ### 古今中外其他名人名言/金句
 1. （HNO3）杏花疏影里，吹笛到天明
@@ -1277,3 +1288,13 @@
 207. 谢谢您。回顾几年来辛酸的化学历程，但也知道了化学学科的殊途同归。Science and Engineering，从未冰冷，有血有肉，悲欢离合。它们致郁且治愈。尽管人类的悲喜顺逆并不相通，但愿总能拥有被同一份理性打动的共情。探索并重绘世界，逐步呈现越来越完善的图景！！
 208. あなたの最高の自己になり、それを流してみましょう。
 209. 残りを手放します。
+210. 中科大教务处发的愚人节通告，通告说是一教下发现了金矿，最下面写着"愚人节快乐"
+211. 人的心情不会一直都如同平静的海面，它须有浪花的起伏，须有鱼群的跳跃。心情不是死海，人不是机器，emo是生活不如意时给你的警醒，辩证的看待，合理的排泄。
+212. 人类有了喝西北风的能力，才能不喝西北风！！
+213. 我唯一接受的明星面试进编制只有萧敬腾进气象局
+214. 私はあなたの手で殺したのです。私と一緒に地獄に行きましょう。
+215. 你说是就是（刘玥彤）
+216. 我人都傻了（刘玥彤）
+217. 坩埚钳，土土金。（李蕊娇） 
+218. 抑郁症暂时不会让我死去,它使我招人讨厌
+219. 同质化——（so called高考630+，800m两分半的优秀girl·冷却报告·冷继仪）
