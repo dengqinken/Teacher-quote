@@ -200,6 +200,9 @@
 
 ### 化学老师（初中）
 1. 活在当下，缓慢氧化
+2. 单独拎出来都简单，一起考就恼火
+3. 求精初中部，以前别的老师羡慕化学老师，因为一直教初三，不用“搬家”，但是现在制度改了，从同一年级固定变成了同一批学生固定，所以就变成了化学老师羡慕其他老师，只有化学老师要“搬家”。
+4. 到了冬天的时候，我要把碳酸钙念成“碳酸gai一声”，因为到期末了状态不好了，但是到了3月开学时候又好了
 
 ### 地理老师
 
@@ -1119,6 +1122,14 @@
 259. 校服进化史：su→au→wu，非校服进化史：cdx→ccx→hd→dc. 
 260. 庞静→李建国→费春斌
 261. 小学六年教室都没有空调，不知道怎么熬过来的
+262.  我从不善于表达
+263. 自由意志or宿命论
+264. とら逼我入d考g，都是想让我碱中毒！
+265. 感觉我家长犯的最大的罪，就是把我生下来了，但是我还是要学习“墨茶精神”，还要“打造自主品牌”（蓝熊）
+266. 我的心理已经扭曲了
+267. 我真的开不起玩笑
+268. 模因（meme）真是微妙啊
+269. 我的六大弱点：不能吃辣、不能bn、平衡差、体育差、W值小（书写差）、不能忍受化学试剂的气味。    
 
 
 ### 古今中外其他名人名言/金句
@@ -1295,8 +1306,8 @@
 171. 倘若一味地只让人看到白，便分不清黑白，白也就成了黑
 172. 赋得古原草送别 颗颗草上莓，一岁一发生。外地吃不起，产地卖不动。莓贴营销牌，价近一线城。又送墨茶去，莓莓满别情。
 173. 按自己喜欢的方式来处理
-174. 先盼一波，不急潼南站辐射
-175. 很奇怪，它从来不暴力辐射，你如果只看前半夜，会觉得妥妥地辐射废站，但是它能稳定持久地刷一夜辐射，并且秋冬季喜欢在即将天亮时起大雾，起大雾的同时跳降一下，上午雾经久不散
+174. 先盼一波，不急
+175. 潼南站辐射很奇怪，它从来不暴力辐射，你如果只看前半夜，会觉得妥妥地辐射废站，但是它能稳定持久地刷一夜辐射，并且秋冬季喜欢在即将天亮时起大雾，起大雾的同时跳降一下，上午雾经久不散
 176. 草莓咱一框一框的吃，可乐咱一瓶一瓶的炫
 177. 冰原上的猛虎——谷爱凌 白虎参上！记者里的蛟龙——王冰冰 青龙参上！电灯开关传奇——何同学 朱雀参上！草莓田の盗贼——墨圣 玄武参上！理塘里的祥麟——丁真 麒麟参上！
 178. 有一天我忽然意识到，“我自己是我这一生中最后一个死去的人。”
@@ -1323,7 +1334,7 @@
 199. 百京，一百度极品烫炸的京
 200. 不过是聚集在一起的乌合之众罢了，没有一个明确的行动纲领、党章，自然而然你们聚在一起这个行为本身就不具备团体性，也就意味着你们所蕴含的爆发力不过如同湿透的火柴，根本不是星星之火可以燎原之势
 201. 真正读法是bí lī bī bī （ビリビリ），教主就是这么喊炮姐的
-202. 我是萸雪忧茫（匡嘉鸿）
+202. 我是萸雪忧茫，神不在乎。（匡嘉鸿）
 203. 摆烂不一定能带来很大的收益，但在人生已经如此艰难的情况下，又有什么可以失去呢？个人感觉，摆烂就是介于躺平和卷的中间一种状态。通俗一点点的摆烂就是“活是活不下去了，死又不敢死”所以就摆烂
 204. also, Is the data you found that seems to have a obvious wrong, 350-500 ml is probably the cut-off point for most people to pee, 800 ml is the limit of endurance that most people can achieve without intentional or unintentional training, In fact, most people just have a little training, You can raise the endurance limit to about 1,000 ml, And as to the limits of tolerance of the structure of the bladder itself, In theory, at least from 1,500 to 2,000 ml, But the fact that most people do not reach this level is already intolerant or the urination reflex is too significant. In short, don't underestimate the ability of the bladder, also don't demonize hold urine this behavior, people have bladder the organs is to temporarily store urine, as long as not often high load of the use of the organs, suppress urine itself is almost harmless, whether to accept hold urine mainly depends on the occasion, of course, in the bladder may be a sudden force or may need high pressure hold urine, it is best to empty in advance, otherwise hold a little hold it doesn't matter
 205. 新的一年就要到啦，祝过去一年里和我在知乎对线的天赋论网友在新的一年里身体健康，口齿伶俐，思维敏捷，再创佳绩！
@@ -1365,3 +1376,5 @@
 241. 如果生活累了，那就摸个鱼吧
 242. 加点石墨烯，涂点钙钛矿！
 243. 这就是世界结束的方式。 并非轰然落幕，而是郁郁而终。
+244. 杜甫:朱门酒肉臭，路有冻死骨唐朝网友1:这两件事有什么关联吗?朱门的 酒肉是朱门自己的，跟冻死骨有什么关系，就 硬转进是吧?唐朝网友2:朱门对大唐多有贡献，享受酒肉 理所应当，冻死骨自己不努力，现在来仇朱真 是可笑。唐朝网友3:唐如此广大，不可能没有冻死 骨，建议子美理性看待，不能把问题都归结到 朱门身上唐朝网友4:这个姓杜的整天对大唐盛世阴阳 怪气，建议大人查查他是不是契丹国势力带 节奏。唐朝网友5:你要是觉得唐朝不好，那就考功名，去建设它，而不是在这阴阳怪气
+245. 邓秦肯勤奋人设（汪廷一）
